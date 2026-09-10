@@ -2,10 +2,11 @@
 
 <img src="https://github.com/privateangelz/privateangelz/blob/2c73ebc02d46ab8e70abb554cf8e7a0329f3465f/yuzubgfin.png">
 
-<h3 style="color:#6E667E;">19 ,, she/her</h3>
+<h3 style="color:#6E667E;"> 19 she/her </h3>
 
 <p>
-check my strawpage & sign my ata too while ur here !
+my 2nd awesome account for another layout ^^
+draw on my sp vro
 <br>
 
 
