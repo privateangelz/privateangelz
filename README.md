@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/privateangelz/privateangelz/blob/276ab399b5eba1bbe2fe9f12dd9b1e958089bd28/cute.png">
+<img src="https://github.com/privateangelz/privateangelz/blob/04ac3491c7b3e415612826169bcbaefb33a842ea/ok%20cute.jpg">
 
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
