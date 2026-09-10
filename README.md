@@ -15,7 +15,7 @@ draw on my sp vro
 <br>
 ──────── ⋆｡°✩ ────────
 <br> <br>
-<img src="https://komarev.com/ghpvc/?username=privateangelz&label=⋆｡𖦹°‧♡໒꒱&color=5C1720">
+<img src="https://komarev.com/ghpvc/?username=privateangelz&label=⋆｡𖦹°‧♡&color=5C1720">
 <br> <br>
 
 <img src="https://github.com/privateangelz/privateangelz/blob/2c73ebc02d46ab8e70abb554cf8e7a0329f3465f/yuzuminifin.png">
