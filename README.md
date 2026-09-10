@@ -17,6 +17,6 @@ check my strawpage & sign my ata too while ur here !
 <img src="https://komarev.com/ghpvc/?username=privateangelz&label=⋆｡°✩&color=20334D">
 <br> <br>
 
-<img src="https://github.com/flrelise/flrelise/blob/9392203b97595291ad1b0c22fcf5af8d71a37eb6/minimini.png">
+<img src="https://github.com/privateangelz/privateangelz/blob/6b7eb1e03e61718cc18e5783a7cb28ae4b4b428a/yuzuha%20mini.png">
 
 </div>
