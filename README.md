@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://github.com/flrelise/flrelise/blob/ea1737061b2abafe69edbfeb6e4a1c1e3e8297e9/remielle%20final%20final%20final%20final%20finished%20pfp.jpg" width="750">
+<img src="https://github.com/privateangelz/privateangelz/blob/276ab399b5eba1bbe2fe9f12dd9b1e958089bd28/cute.png">
 
 <h3 style="color:#6E667E;">19 ,, she/her</h3>
 
