@@ -21,3 +21,6 @@ draw on my sp vro
 <img src="https://github.com/privateangelz/privateangelz/blob/2c73ebc02d46ab8e70abb554cf8e7a0329f3465f/yuzuminifin.png">
 
 </div>
+
+
+frame by @phaea tumblr <3
